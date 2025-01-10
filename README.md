@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lfnn01
+- 👀 I’m interested in coding, Graphic Design, Web dev, Game dev
+- 🌱 I’m currently learning Web Dev
+- 📫 How to reach me lfn.nawar5@gmail.com
+- ⚡ Fun fact: ...
